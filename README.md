@@ -4,5 +4,5 @@ Feel free to contact me using the contact information below! If possible, please
 
 ## Contact 
 
-* emrabner@gmail.com
+* abnere@uci.edu
 * (323) 213-6730
